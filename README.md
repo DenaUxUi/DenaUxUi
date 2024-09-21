@@ -1,1 +1,1 @@
-<img src="https://giphy.com/embed/7uDtQm2jKdS0VGLg46" width="480" alt="none">
+<img src="https://giphy.com/gifs/computer-reality-mind-128Ygie2wLdH5m" width="480" alt="none">
